@@ -11,8 +11,6 @@
 
 ### #1烂人 │ Keith
 
-**He/Him** │ **19** │ **FIL / ENG**
-
 <p>
 ➤ <b>Typology :</b> ESTP • SLE • 8w7 (825) • so/sp • VFEL • Chol-Sang<br>
 ➤ feel free to interact! i love making friends and i'm just here to have fun and chat (OP fans hmu please)<br>
