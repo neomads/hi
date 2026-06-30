@@ -13,13 +13,12 @@
 
 **Illustrator & Designer**  
 **He/Him** │ **19** │ **FIL / ENG**
-
-➤ **Typology:** SLE • ESTP • 8w7 (825) • so/sp • VFEL • Choleric-Sanguine
-
-➤ feel free to interact! i love making friends and i'm just here to have fun and chat !!! 
-Sometimes offtab making skins , Usually at spawn 
-
-➤ **currently into :** GK , OP , DRHDR , BRBA , BJHM & RPGMaker games
+<p>
+➤ <b>Typology:</b> SLE • ESTP • 8w7 (825) • so/sp • VFEL • Choleric-Sanguine<br>
+➤ feel free to interact! i love making friends and i'm just here to have fun and chat!!!<br>
+Sometimes offtab making skins, usually at spawn.<br>
+➤ <b>currently into:</b> GK, OP, DRHDR, BRBA, BJHM & RPGMaker games
+</p>
 
 </td>
 
