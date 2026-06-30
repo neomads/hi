@@ -13,6 +13,7 @@
 
 **Illustrator & Designer**  
 **He/Him** │ **19** │ **FIL / ENG**
+
 <p>
 ➤ <b>Typology:</b> SLE • ESTP • 8w7 (825) • so/sp • VFEL • Choleric-Sanguine<br>
 ➤ feel free to interact! i love making friends and i'm just here to have fun and chat!!!<br>
