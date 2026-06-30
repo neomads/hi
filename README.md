@@ -1,9 +1,9 @@
 <table>
 <tr>
 
-<td width="52%">
+<td width="52%" valign="top">
 
-# placeholder
+<img src="https://raw.githubusercontent.com/neomads/neomads/345de44515ac9f7ebc83af08e3cc5a11d863dde8/og1.png" width="100%">
 
 </td>
 
@@ -16,7 +16,7 @@
 ➤ feel free to interact! i love making friends and i'm just here to have fun and chat (OP fans hmu please)<br>
 Sometimes offtab making skins, usually at spawn.<br>
 ➤ <b>Currently Into :</b> GK, OP, DRHDR, BRBA, BJHM & RPGMaker games (refer to my strawpage for the full list)<br>
-➤ I don’t hide people unless you harass me or others
+➤ i don’t hide people unless you harass me or others
 </p>
 
 </td>
@@ -24,5 +24,4 @@ Sometimes offtab making skins, usually at spawn.<br>
 </tr>
 </table>
 
-<div style="height: 20px;"></div>
 <br><br><br>
