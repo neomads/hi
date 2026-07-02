@@ -3,7 +3,7 @@
 
 <td width="52%" valign="top">
 
-<img src="https://raw.githubusercontent.com/neomads/neomads/40dd9825eb58ed690f4d5a3079e08ae034ee6850/35a921956d955a6b9b6ba3727f8d3e87.png" width="100%">
+placeholder IM STILL EDITING IT 
 
 </td>
 
